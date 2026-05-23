@@ -6,5 +6,3 @@
 
 ✧ Wanted to know more about me? Please don't forget to check my Strawpage!
 
-< https://shingujibyakuya.straw.page />
-
